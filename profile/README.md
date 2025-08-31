@@ -4,7 +4,7 @@
 
 **REMATCH** is an upcoming competitive action title where precision, awareness, and quick reflexes decide victory. But as with most shooters, players are already looking for ways to gain an edge with **REMATCH cheats**. From **aimbots and wallhacks** to **ESP overlays and god mode**, cheats provide unfair advantages that change the way the game is played. In this guide, we’ll dive into the most common cheat types for REMATCH, their features, and how they stack up against hacks from other games.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://rematch-cheat.github.io/.github/)
 ---
 
 ## What Are REMATCH Cheats?
